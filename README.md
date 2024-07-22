@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Sweetcstore
+- 👋 Hi, I’m Josias
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on everything
